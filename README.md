@@ -1,1 +1,1 @@
-# SEO-Data-for-Recipe-Keywords---Google-YouTube
+# SEO Data for Recipe Keywords (Google and YouTube)
